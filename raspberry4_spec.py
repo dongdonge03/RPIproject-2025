@@ -1,0 +1,1 @@
+2026 raspberry pi spec 조사
